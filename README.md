@@ -1,3 +1,6 @@
+![Profile Views](https://komarev.com/ghpvc/?username=AmitTr0318&color=blue)
+
+
 🌟 **Amit Tripathi** | From Sales Strategist to Data Enthusiast 🧠📊
 
 After 5+ years of delivering results in **Sales and New Business Development**, I’ve learned one undeniable truth: **data drives decisions**. Whether it was identifying growth opportunities, optimizing client engagement, or streamlining processes, my success was built on the foundation of data-driven insights.
