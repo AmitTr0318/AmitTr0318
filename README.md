@@ -15,5 +15,3 @@ Now, I’m switching lanes into **Data Analytics**, where my ability to understa
 
 👋 Let’s connect and turn numbers into narratives that drive success!
 
-**LANGUAGES & TOOLS**
-(https://cdn-dhhph.nitrocdn.com/YwrWfrMMnPrQoiMcCnngShsqFHLItupA/assets/images/optimized/rev-dc2fa1c/pei.com/wp-content/uploads/2016/08/maxresdefaultreduced.jpg)
