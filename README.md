@@ -14,3 +14,6 @@ Now, I’m switching lanes into **Data Analytics**, where my ability to understa
 🔍 I’m on a mission to bridge the gap between **business objectives** and **data insights**, ensuring that companies don’t just collect data, but leverage it to **make smarter, faster decisions**.
 
 👋 Let’s connect and turn numbers into narratives that drive success!
+
+**LANGUAGES & TOOLS**
+(https://cdn-dhhph.nitrocdn.com/YwrWfrMMnPrQoiMcCnngShsqFHLItupA/assets/images/optimized/rev-dc2fa1c/pei.com/wp-content/uploads/2016/08/maxresdefaultreduced.jpg)
