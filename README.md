@@ -1,5 +1,4 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=AmitTr0318&color=blue)
-![Repository Count](https://img.shields.io/endpoint?url=<https://github.com/AmitTr0318/Badge/blob/main/README.md>)
 
 
 
