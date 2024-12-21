@@ -1,4 +1,6 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=AmitTr0318&color=blue)
+
+
 [![Amit's GitHub stats](https://github-readme-stats.vercel.app/api?username=AmitTr0318)](https://github.com/Amittr0318/github-readme-stats)
 
 🌟 **Amit Tripathi** | From Sales Strategist to Data Enthusiast 🧠📊
