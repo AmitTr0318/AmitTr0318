@@ -1,4 +1,6 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=AmitTr0318&color=blue)
+![Repository Count](https://img.shields.io/endpoint?url=<https://github.com/AmitTr0318/Badge/blob/main/README.md>)
+
 
 
 [![Amit's GitHub stats](https://github-readme-stats.vercel.app/api?username=AmitTr0318&show_icons=true&theme=transparent)](https://github.com/Amittr0318/github-readme-stats)
